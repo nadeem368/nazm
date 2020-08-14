@@ -1,0 +1,2 @@
+# nazm
+Good
